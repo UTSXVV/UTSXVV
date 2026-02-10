@@ -7,3 +7,4 @@
 - 🎯 Constantly learning and exploring new technologies
 
 - 📫 Connect: utssavvpatel@gmail.com | [LinkedIn](https://linkedin.com/in/utsxvv)
+- 🌐 Check Out: [utsavpatel.me](https://utsavpatel.me/)
